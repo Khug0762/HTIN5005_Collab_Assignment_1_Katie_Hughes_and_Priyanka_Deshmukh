@@ -1,2 +1,0 @@
-# HTIN5005_Collab_Assignment_1_Katie_Hughes_and_Priyanka_Deshmukh
-Assignment 1 HTIN5005
